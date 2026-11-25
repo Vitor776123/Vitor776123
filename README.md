@@ -21,7 +21,7 @@
 
 1. Você conta o que precisa.
 2. Eu desenho, construo e reviso cada página.
-3. Você recebe um site pronto para vender.
+3. Você recebe um site pronto para vender e atender.
 
 <div align="center">
 
